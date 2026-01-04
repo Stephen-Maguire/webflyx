@@ -2,3 +2,4 @@
 - Do you find Sand-worms oddly sexy?
 - I'll stick it in the Gom Jabbar
 - Cialis will get the spice flowin'
+- Arousal also a mind killer...it just kills differently from fear
